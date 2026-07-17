@@ -1,1 +1,1 @@
-# gigs-landing
+# Equinox Technology
